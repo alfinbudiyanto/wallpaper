@@ -1,2 +1,2 @@
-# wallpaper-
+# wallpaper
 my wallpaper 
